@@ -5,6 +5,10 @@
 ## [Cursors](Addlinkhere)
 
 
+## [Amaestric(Blue Hitcircles)](https://drive.google.com/file/d/1AlhtaOVJ2bV9JrJWlrKdPxBN-BXuI3lr/view?usp=sharing) 
+![](https://media.discordapp.net/attachments/517481090546532378/770327105472692264/screenshot034.jpg?width=1207&height=677)
+
+
 ## [- # re;owoTuna v1.1 『CK』 #](https://mega.nz/folder/IAsDGDpJ#K-QkgqEUM6laE-mCyZYa5A/file/wEkBhKyK) 
 ![](https://media.discordapp.net/attachments/517481090546532378/769503116390957096/screenshot011.jpg?width=1194&height=671)
 
