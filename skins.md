@@ -2,7 +2,7 @@
 #### If any skins are missing let me know in discord **HugeNoob#2822** or during stream [here](https://www.twitch.tv/hugenoobtwitch).
 ##### I switch them a lot so I might forget to upload some.
 
-## [Cursors](Addlinkhere)
+## [Cursors](Addlinkhere) Nothing here yet
 
 
 ## [tony varv](https://www.dropbox.com/s/dnmlk2cyz89aimh/tony%20varv.osk?dl=0)
